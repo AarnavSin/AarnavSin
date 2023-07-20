@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **aarnavsin@gmail.com**
 
-- ⚡ My goal **I am no stranger to tech, but I feel like the new guy here. Currently working towards learning and becoming capable of something greater!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
